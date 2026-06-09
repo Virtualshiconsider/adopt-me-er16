@@ -1,4 +1,4 @@
-
+adopt me Script automatic is the best adopt me Script, featuring auto-farm and silent aim. Safe and powerful for all your needs.
 
 
 
